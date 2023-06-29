@@ -13,30 +13,26 @@ NA DESCRIÇAO DO VIDEO
 Todos os arquivos mostrados no video:
 👇👇👇
 
-✔• Freestyle - 780 • RGH
 ✔•(USB) • 
-( Ja vem com Launch.ini para usar via - (USB)
-LINK 
-🔗 Link MEGA --► https://bit.ly/3MMb0i6
-🔗 Link DIRETO --► https://bit.ly/42b8NlY
-🔗 Link Mediafire  --► https://bit.ly/3WGzMEw
+▶  Freestyle rev780 para USB
+🔗 Link MEGA --► https://tinyurl.com/4aj69fu8
+🔗 Link DIRETO --► https://tinyurl.com/bd2febyb
+🔗 Link Mediafire  --► https://tinyurl.com/yyuwy2jc
 ou
 ✔•(HDD) •
-✔• Freestyle - 780 • (HDD) • RGH
-( Ja vem com Launch.ini para usar via - (HDD)
-LINK :
-🔗 Link MEGA --► https://bit.ly/42aKhkL
-🔗 Link DIRETO --► https://bit.ly/42d3su4
-🔗 Link Mediafire  --► https://bit.ly/43tiNb9
+▶  Freestyle rev780 para HDD
+🔗 Link MEGA --►  https://tinyurl.com/3v3kzsw6
+🔗 Link DIRETO --► https://tinyurl.com/53uhnw7v
+🔗 Link Mediafire  --► https://tinyurl.com/mv2ahkvn
 ....................................
 
 
 👆🔔
-( Todos os Links acima atualizados 29/05/2023
+( Todos os Links acima atualizados 29/06/2023
 
 ➖➖➖➖➖➖➖➖➖
 Ajude nosso trabalho sendo um membro do canal , além de links fáceis de baixar e diretos
-SEM PROPAGANDAS  
+SEM PROPAGANDAS  usnado os links para memebros exclusivos deixandos na descriçao dos videos 
 você tem benefícios incríveis e exclusivos todos os meses 
 ➖➖➖➖➖➖➖➖➖➖
 👇👇👇
